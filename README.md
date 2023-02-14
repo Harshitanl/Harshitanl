@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Currently Preparing For Data Analytics.<br><br>🌱 I’m currently Deep Diving into Data to make it Efficient and Useful .<br><br>🤔 Working At Data Quality Assurance Processes .<br><br>💬 Ask me about Good First Issues & Exciting projects to work on.<br><br>📫 How to reach me : https://github.com/Harshitanl | sahuharshit278@gmail.com<br><br>😄 Pronouns : He/His<br><br>⚡ Fun fact : I think I'm Funny!
+🔭 I’m Currently Preparing For Data Analytics.<br><br>🌱 I’m currently Deep Diving into Data to make it Efficient and Useful .<br><br>🤔 Working At Data Quality Assurance Processes .<br><br>💬 Ask me about Good First Issues & Exciting projects to work on.<br><br>📫 How to reach me : https://github.com/Harshitanl | sahuharshit278@gmail.com | https://www.linkedin.com/in/harshit-sahu-587274266/<br><br>😄 Pronouns : He/His<br><br>⚡ Fun fact : I think I'm Funny!
 
 
 ## 🌐 Socials:
